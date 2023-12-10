@@ -1,0 +1,1 @@
+# VINQO-SCHOOL
